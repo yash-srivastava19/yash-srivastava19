@@ -7,4 +7,4 @@
 *Purist by heart, Pragmatic by nature*
 > *Salid y disfrutad* 🔴🔵
 
-<a href='https://ko-fi.com/P5P3B54O4' target='_blank'><img height='36' style='border:0px;height:36px;' src='https://cdn.ko-fi.com/cdn/kofi2.png?v=3' border='0' alt='Buy Me a Coffee at ko-fi.com' /></a>
+<a href='https://ko-fi.com/P5P3B54O4' target='_blank'><img height='36' style='border:0px;height:36px;' src='https://cdn.ko-fi.com/cdn/kofi2.png?v=3' border='0' alt='Buy Me a Aloo Tikki at ko-fi.com' /></a>
