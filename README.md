@@ -8,4 +8,5 @@
 > *Salid y disfrutad* 🔴🔵
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/P5P3B54O4)
+![](https://komarev.com/ghpvc/?username=yash-srivastava19&style=flat-square)
 * Business Website - [Inkuisitive](https://www.inkuisitive.xyz/)
