@@ -9,3 +9,4 @@
 > *Salid y disfrutad* 🔴🔵
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/P5P3B54O4)
+![Contribution](https://activity-graph.herokuapp.com/graph?username=yash-srivastava19&theme=react-dark&hide_border=true&area=true)
