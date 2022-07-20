@@ -9,3 +9,4 @@
 > *Salid y disfrutad* 🔴🔵
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/P5P3B54O4)
+<img src="https://komarev.com/ghpvc/?username=yash-srivastava19&color=brightgreen" alt="watching_count" />
