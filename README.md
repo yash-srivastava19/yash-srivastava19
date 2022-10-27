@@ -5,7 +5,7 @@
 * I am a big advocate of Responsible, Trustworthy and Secure AI.
 * How to reach me - [Mail ID](mailto:ysrivastava126@gmail.com?&cc=ysrivastava82@gmail.com&subject=Hi%20Yash%20from%20GitHub&body=Hi%20Yash%20I%20am%20%E2%80%A6%20and%20thanks%20for%20prefilling%20this%20email), [Kaggle](https://www.kaggle.com/yashsrivastava51213)
 
-* Business Website - [Inkuisitive](https://www.inkuisitive.xyz/)
+* Business Website - [Amatuers](https://www.amatuers.xyz/)
 > *Salid y disfrutad* 🔴🔵
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/P5P3B54O4)
