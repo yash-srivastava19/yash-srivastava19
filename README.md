@@ -2,8 +2,6 @@
 
 * A great overview of what I do - [Website](https://yash-sri.xyz)
 
-* Find something ineresting? Just ping me.
-
 * How to reach me : - [Mail ID](mailto:ysrivastava82@gmail.com?&cc=ysrivastava82@gmail.com&subject=Hi%20Yash%20from%20GitHub&body=Hi%20Yash%20I%20am%20%E2%80%A6%20and%20thanks%20for%20prefilling%20this%20email),
  [Twiiter](https://twitter.com/Yaaaaaashhh)
 
